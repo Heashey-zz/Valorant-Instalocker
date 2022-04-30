@@ -12,3 +12,6 @@ HOW TO USE:
 7. Hold Space to Instalock.
 
 Video on how to use: https://streamable.com/ggri6s
+
+#Valorant-InstaLocker #ValorantInstaLocker #ValorantInstaLock #ValorantAutoPick #Valorant-AutoPick #ValorantInstantPick #Valorant-InstantPick #Valorant-InstantLocker
+#ValorantInstantLock #Valorant-InstantLock
